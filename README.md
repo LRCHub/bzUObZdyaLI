@@ -1,0 +1,79 @@
+# LGYankees – Cluck Over
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+(RYO)
+Yes か No 選ぶなよ High か Low
+ブチ上がりなよ俺らの Microphone
+肌で感じ体揺らし 音とともに騒ぎ狂い叫び(Hoo)
+右左気にせずに上がろう
+Here We Go 待ってたぜその勢い
+更に持って来いもっと持って来い
+周りを気にせず俺らに付いて来い
+熱風巻き起こす爆風 見たもん勝ちだよ俺らの Live
+そこどけ前へようこそ歓迎
+戻れないここまで来たら来い
+気にしたって周りを飾りを脱ぎ捨てて
+さぁもうありのままを
+見せつけてお前なりの Color を It's All Right
+いつもはない Feel So High
+Hey その扉を開けるだけで
+何時になく Happy な Party
+Hey このまま朝が来るまで
+Hey 咲き乱れちゃってな Party
+Hey その扉を開けるだけで
+何時になく Happy な Party
+Hey このまま朝が来るまで
+Hey 咲き乱れちゃってな Party
+(HIRO)
+待ちに待った Night Party
+マジ Flake みたいに光る Barbies
+Princess Please Hi My Honey
+いつもより今日は大胆に
+踊ろう Ready Go! 俺と Danceを
+その前にお決まりの One Shot
+心体は La La High Land Hey!
+未知なる夜に会いに行こう
+君とならそうどこまでも
+行けそう飛べそう絡まっても
+Hi Sparkling Time Hey(Yeah Hey!)
+乱れる Ladies & Gentlemen
+燃え尽きるまで今日は帰さねー
+人目気にせずにバカんなれ!!
+全部曝け出して満たしてくれるはず
+この One Day 行こうぜ
+Hey その扉を開けるだけで
+何時になく Happy な Party
+Hey このまま朝が来るまで
+Hey 咲き乱れちゃってな Party
+Hey その扉を開けるだけで
+何時になく Happy な Party
+Hey このまま朝が来るまで
+Hey 咲き乱れちゃってな Party
+(HIRO)
+まだまだ踊ろう遊ぼうもっと
+しどろもどろになってく足元
+帰りたくはない帰したくもない
+この時一緒に感じよう
+明るくなるなんか虚しくなる でも
+One Week 過ぎればまた週末
+自分の居場所を探すのさ (Hey!)
+やっぱここだぜこの空間
+(RYO)
+気分雲の上までよ Fly High 頭 体揺らしないい具合
+見せてみなその最高の Smile With Me
+そうさ俺らに Ride On B
+Day Game Night Game に Goal
+行き先は自由サイの目をふる
+日々稼ぐ汗水たらしあくせく
+たまには抜け出して吹かす Accel
+Hey その扉を開けるだけで
+何時になく Happy な Party
+Hey このまま朝が来るまで
+Hey 咲き乱れちゃってな Party
+Hey その扉を開けるだけで
+何時になく Happy な Party
+Hey このまま朝が来るまで
+Hey 咲き乱れちゃってな Party
+```
