@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "Cluck Over",
+  "base_artist": "LGYankees",
+  "createdAt": "2026-02-14T14:32:05.086765Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "Cluck Over",
+      "artist": "LGYankees",
+      "has_synced": false,
+      "path": "select/pl_01_Cluck_Over_LGYankees.txt"
+    }
+  ]
+}
